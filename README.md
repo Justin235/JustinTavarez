@@ -1,2 +1,2 @@
 # JustinTavarez
-This is is just a blog about me. :)
+This is is just a about me. :)
